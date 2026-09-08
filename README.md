@@ -1,4 +1,4 @@
-# ⚔️ Onimusha: Way of the Sword Trainer | God Mode, Unlimited Souls & One-Hit Kills
+# ⚔️ Onimusha: Way of the Sword Trainer | God Mode, Unlimited Souls & One-Hit Kills 
 
 ![Onimusha Trainer Preview](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcTjYt7wB8rw0Nl8pXrIxvkbo99Xqhrz8550ngKSNlQzJg&s=10)
 
